@@ -1,2 +1,3 @@
-# proyecto-f
-proyecto f lua en r studio
+Sekai Collapse: Abstract Realm
+
+
