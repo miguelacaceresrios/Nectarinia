@@ -1,3 +1,1 @@
-Sekai Collapse: Abstract Realm
-
-
+recolecta tus logros en steam
